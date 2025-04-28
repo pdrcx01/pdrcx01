@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pdrcx01
 - 👀 free fire
 - 🌱 maconha
-- 💞️ mia califa
+- 💞️ futebol
 - 📫 caminhao 1620 turbo
 - 😄 chagas
 - ⚡ futebol
